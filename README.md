@@ -1,4 +1,6 @@
-zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
+![image_alt](https://github.com/haniiiipie/haniiiipie/blob/2a93e3fb008af84910a03976ef2e17bed7da9919/Untitled133_20260624071034.png)
+
+zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ <img src="https://i.imgur.com/NQT9AGU.gif" width="28">
 
 𝐼 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑏𝑒 𝑡ℎ𝑒 𝑘𝑖𝑛𝑑 𝑠𝑡𝑟𝑎𝑛𝑔𝑒𝑟
 
@@ -17,7 +19,10 @@ zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
 　⠀ ⠀ ⠀/ᐠ > . < ̥マ    ݂۫     𓏼 ₊͜  ◞ ྀིྀ
  
 ⠀ ⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/mizisua44)
-　+　[Pinterest](https://pin.it/4h5AlKoGC)⠀ ♡︎ ༷݁   ꒱ྀ
+<img src="https://files.catbox.moe/6izmhi.gif"
+ width="28">
+　+　[Pinterest](https://pin.it/4h5AlKoGC)
+ ⠀<img src="https://files.catbox.moe/abe1tz.gif"
+ width="28">  ♡︎ ༷݁ 
 
-
- 
+![image_alt](https://github.com/haniiiipie/haniiiipie/blob/2a93e3fb008af84910a03976ef2e17bed7da9919/Untitled133_20260624071059.png)
