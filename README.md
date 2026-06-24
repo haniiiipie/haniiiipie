@@ -1,5 +1,15 @@
-![image_alt](https://github.com/haniiiipie/haniiiipie/blob/fcbc81b26861471f03f28454e5af1e1419869356/Untitled130_20260623222032.png)
-I want to be the kind stranger
+zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
 
-in someone's memory.
+𝐼 𝑤𝑎𝑛𝑡 𝑡𝑜 𝑏𝑒 𝑡ℎ𝑒 𝑘𝑖𝑛𝑑 𝑠𝑡𝑟𝑎𝑛𝑔𝑒𝑟
+
+𝐼𝑛 𝑠𝑜𝑚𝑒𝑜𝑛𝑒'𝑠 𝑚𝑒𝑚𝑜𝑟𝑦. 
+ 
+
+
 ![image_alt](https://github.com/haniiiipie/haniiiipie/blob/298c38c0433864ed029597a2588ae678866cf6a5/Untitled125_20260623215834.png)
+
+𐔌  𝙃𝙖𝙣  𓏵  𝙕𝙚𝙣 ⁺  ︵ ༺
+𓂃  𝙝𝙚 , 𝙝𝙞𝙢  ꕮ 
+𝙚𝙣𝙛𝙥!  ︴𝘼𝙧𝙤𝙖𝙘𝙚  𑁥౿
+୨୧┈୨୧  𝟭𝟬/𝟭𝟲/ !!  𓎢𓎟  ╱ 𝙡𝙞𝙣𝙠𝖐
+
