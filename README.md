@@ -15,7 +15,7 @@
 
 ㅤ୬     𔖳    ׅㅤ^᪲᪲᪲𖹭  𝐒𝐞𝐧𝐝  𝐰𝐡𝐢𝐬𝐩𝐞𝐫  𝐭𝐨  𝐭𝐚𝐥𝐤  ! !  𓊌  💭  ˒˓
 
-⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/mizisua44)
+⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/profileee) )
 <img src="https://files.catbox.moe/6izmhi.gif"
  width="14">
  
