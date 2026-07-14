@@ -16,12 +16,12 @@
 ㅤ୬     𔖳    ׅㅤ^᪲᪲᪲𖹭  𝐒𝐞𝐧𝐝  𝐰𝐡𝐢𝐬𝐩𝐞𝐫  𝐭𝐨  𝐭𝐚𝐥𝐤  ! !  𓊌  💭  ˒˓
 
 ⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/profileee) )
-<img src="https://files.catbox.moe/6izmhi.gif"
+<img src="https://64.media.tumblr.com/a0e1453dae646835f830b7e5c927f306/518a48de9309e0d3-d8/s75x75_c1/cedf6e62740dc9e765a6e5ba8243c93b0e676437.gifv"
  width="14">
  
 　.⠀⠀⠀⠀⠀⠀⠀⠀⠀　[Pinterest](https://pin.it/4h5AlKoGC)
- ⠀<img src="https://files.catbox.moe/abe1tz.gif"
- width="14">  ♡︎ ༷݁ 
+ ⠀<img src="https://64.media.tumblr.com/076f93a392a3917cf6b41a25c9c509cf/0267cbb62ed7e3e6-f5/s75x75_c1/c13db55cc15aedd22292a7e5a72364bb2ddba1e7.gifv"
+width="14">  ♡︎ ༷݁ 
  
 ㅤㅤㅤ
 ⏝ ⏝  ︶ ⏝ ︶  ︶  ⏝ ⏝  ︶ ⏝ ︶  ︶ ୨୧ 
