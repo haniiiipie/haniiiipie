@@ -14,7 +14,7 @@
 
 ㅤ୬     𔖳    ׅㅤ^᪲᪲᪲𖹭  𝐒𝐞𝐧𝐝  𝐰𝐡𝐢𝐬𝐩𝐞𝐫  𝐭𝐨  𝐭𝐚𝐥𝐤  ! !  𓊌  💭  ˒˓
 
-⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/profileee) )
+⠀ ꒰৯ ྐ✚ ₊　[Rentry]((https://rentry.co/incogniiito)) )
 <img src="https://64.media.tumblr.com/a0e1453dae646835f830b7e5c927f306/518a48de9309e0d3-d8/s75x75_c1/cedf6e62740dc9e765a6e5ba8243c93b0e676437.gifv"
  width="14">
  
